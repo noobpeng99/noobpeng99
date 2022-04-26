@@ -1,3 +1,3 @@
-- WuHan, HuBei
-- Music, education and iOS programming
+- WuHan, China
+- Music, education and programming
 - Memory Master on App Store (private)
