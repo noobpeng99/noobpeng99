@@ -1,0 +1,3 @@
+- WuHan, HuBei
+- Music, education and iOS programming
+- Memory Master on App Store (private)
