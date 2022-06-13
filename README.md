@@ -1,2 +1,1 @@
 - WuHan, China
-- Music, education and programming
